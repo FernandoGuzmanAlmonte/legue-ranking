@@ -1,0 +1,1 @@
+# legue-ranking
